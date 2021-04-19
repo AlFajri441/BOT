@@ -1,0 +1,2 @@
+# BOT
+JANGAN LUPA DONASI✨
